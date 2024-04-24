@@ -3,7 +3,7 @@
 Hello my name is Nikolas Binotti alves! I'm a brazilian Atistic who has hyper-focus on:
 - Tecnhology
 - languages  
-- Econimics and Finances
+- Economics and Finances
 - in Study!
 
 ### What are you up to?
